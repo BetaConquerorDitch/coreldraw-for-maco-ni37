@@ -1,4 +1,4 @@
-
+premium Plugin for CorelDRAW for macOS - color correction and version history offers the most advanced CorelDRAW for macOS plugin, with color correction and version history. Ideal
 
 
 
